@@ -15,6 +15,8 @@ that way I'll fall back on asking more questions.
 + How did you find out about this role?
 
   *Many companies advertise roles in different places and they like to know where you found the role. Be prepared to tell them where you found it. If you don't know the answer it might come across like you are applying to tons of jobs randomly.*
+  
++ When is a time that you challenged the status quo and took action to get a result that you wanted (from Chris Ronzio at Trainual)
 
 + Tell me about a time when you faced a challenge and you had to ask other people for help?
 
