@@ -20,7 +20,7 @@ that way I'll fall back on asking more questions.
 
 + Tell me about a time when you faced a challenge and you had to ask other people for help?
 
-+ Tell me about a time when you convinced a boss to change his opinion on something?
++ Tell me about a time when you convinced a boss to change their opinion on something?
 
 + Tell me about a time you failed at something and what you do about it? 
 
